@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm new Graduate for IT Bachelor (on Developer Background)<br>But Rather Find Interest in Financial Career.<br><br>I'm Learn Financial Analysis Now.<br>And Look forward to involve on FP&A role <br>
+I'm new Graduate for IT Bachelor (on Developer Background)<br>Interest in Data Analyst.<br><br>I'm Learn Data Analysis and Modeiling AI Now.<br>
 
 
 ## 🌐 Socials:
